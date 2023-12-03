@@ -1,1 +1,2 @@
-#jangan lupa sholat
+#semoga aku dapat pahala
+
